@@ -3,6 +3,9 @@ Hello, I am looking for CXO roles in top MNCs
 Mohammed Ashfaque Hussain CXO, Consultant , Mentor, Entrepreneur , CEO , COO
 Head of Business , Head of IT & technology, VP / GM /Senior Director, CTO , CIO
 
+![Picture](https://github.com/user-attachments/assets/5f2849a2-b3dd-4f36-8cd3-b83999cb013e)
+
+
 Profile	
 A business visionary, technocrat, mentor, consultant who can build, manage, transform and grow an organization at high speed.
 A natural leader, product management guru, data center expert, equity master, innovative business mind & entrepreneur.
